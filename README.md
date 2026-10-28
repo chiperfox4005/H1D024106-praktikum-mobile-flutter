@@ -1,1 +1,1 @@
-Raihan Dwi Ananda Harvian | H1D024091 | Shift KRS : D | Shift DC : G
+Fikry Mumtaz Pratama | H1D024106 | Shift KRS : E | Shift DC : G
